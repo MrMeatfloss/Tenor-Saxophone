@@ -6,9 +6,6 @@ Like the alto saxophone, the tenor saxophone is great for beginners due to it's 
 
 The payout of sacrificing weight and size from a tenor saxophone is the sound difference. The tenor saxophone has a medium-low pitched sound, whereas the alto saxophone has a medium-high pitched sound. This causes a distinction in the parts that each instrument plays, as both instruments have their shining moments. 
 
+![download (1)](https://user-images.githubusercontent.com/96707128/163735914-eda20e4f-44d3-4a27-bf83-c6bfaf36953e.jpg)
+
 For kids, the alto saxophone is going to be much more popular due to its relatively small size, combined with its weight. However, for the older audience, it is mostly dependent on what kind of sound you like best. Whether it is the high pitched sound of the alto saxophone, or the low pitched sound of the tenor saxophone. I recommend checking both out in person to see which sound you like best before making a decision.
-
-
-
-
-
